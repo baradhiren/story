@@ -6,7 +6,7 @@ The cieling fan was whirring at slow pace like it had also monitored the situati
   "Privacy is everyone's right. 
   We totally understand it. 
   But what you forget to see is that we live in a collaborative society. 
-  And a global world."
+  And a global world."- 
   Concerned, He took a sip of water and concluded his reply.
 
 -- The End.
