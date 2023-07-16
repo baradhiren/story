@@ -8,6 +8,6 @@ Though he confirmed that both of them were on the same page about the Meaning of
 
 ------------* 4 months later
 
-    "I don't think we are communicating on the same level. Thus, I am not fit to perform my duties to the best of my abilities. I have to quit." said H a bittersweet feelings in their heart.
+    "I don't think we are communicating on the same level. Thus, I am not fit to perform my duties to the best of my abilities. I have to quit." said H with a bittersweet feeling in their heart.
 
 -- The End.
