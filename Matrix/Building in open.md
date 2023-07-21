@@ -10,8 +10,8 @@ While Dinesh sat at the Starbucks drinking his Mocha latte, He burps out of nowh
 
     "Well, Now you know what click-bait feels like."
 
---------* 1 hour of how 'Ranting on Click-bait'
+--------* 1 hour of 'Ranting on Click-bait' later
 
-    "But this mess is going to serve as building blocks for what I am building."
+    "But this mess is going to serve as a building block to explain what I am working on."
 
 -- The End.
