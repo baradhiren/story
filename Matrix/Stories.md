@@ -6,7 +6,7 @@
   
     "It means Brave." Ajay replied persistently.
 
-** -- 2 days ago.
+------* 2 days ago.
 
     "Dad, What does Grandpa's name mean?"
   
@@ -24,3 +24,4 @@ Like sharing a secret code of a new adventure. You can never grasp, Where it wil
 
 At which incorrect attempt did Akshay pull the trigger?
 
+-- The End.
