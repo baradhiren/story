@@ -1,13 +1,11 @@
-    "Aren't you the author of this project?"
+    "Hiring Gods now!"
 
-    "Well, If creation is the only job a God has. Then yes. I have become a God." replied the Author.
+    Please mention your name as comment on this line in GitHub.
 
-    "What other 'jobs' do you have?" asked the concenternated mammal.
+    *-------- This is an ad sponsored by Pravritti.
 
-    "Right now? None. I am unemployed." replied god as he sipped another gulp of કાવો that श्री had given him.
+    *-------- Ad. 2 This is just an ad to not let you reach where you want.
 
-    "Why don't you leave them alone?" told श्री getting frustrated with her Husband's antics.
-
-    "But देवी, I am telling the truth. I am only भगवान not a God. In fact I have not created anything. This was all created by the emotions, characters, and contexts of every individual character in this universe. I am through them not with them." replied हरि.
+    *-------- Now, I am just messing with you. But still Ad. 3.
 
 -- The End.
