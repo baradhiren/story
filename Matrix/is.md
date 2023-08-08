@@ -8,6 +8,6 @@
 
     "Yeah, But I asked [What.md]?"
 
-    "Just that it just IS." replied his friend gayly.
+    "Just that it just IS. " replied his friend gayly.
 
 -- The End.
