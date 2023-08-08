@@ -1,5 +1,5 @@
     "But why?"
 
-    "Why not?"
+    "Because Existence is all you get."
 
 -- The End.
