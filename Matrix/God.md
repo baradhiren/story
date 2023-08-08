@@ -1,17 +1,13 @@
-    "I heard You were dead."
+    "Aren't you the author of this project?"
 
-    "Haha. Lot of them are trying to make that a reality."
+    "Well, If creation is the only job a God has. Then yes. I have become a God." replied the Author.
 
-    "Them?"
+    "What other 'jobs' do you have?" asked the concenternated mammal.
 
-    "Ofcourse. You don't think a god would commit a suicide. Do you?"
+    "Right now? None. I am unemployed." replied god as he sipped another gulp of કાવો that श्री had given him.
 
-    "I don't know what to think to be honest. Why did you put us here?"
+    "Why don't you leave them alone?" told श्री getting frustrated with her Husband's antics.
 
-    "Well that's a simple one. You can do whatever the f**k you want."
+    "But देवी, I am telling the truth. I am only भगवान not a God. In fact I have not created anything. This was all created by the emotions, characters, and contexts of every individual character in this universe. I am through them not with them." replied हरि.
 
-    "What if I don't know what I want to do?"
-
-    "Don't worry child. I will be there when you need me. But right now I need your help."
-
--- The End.    
+-- The End.
