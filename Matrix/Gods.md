@@ -1,0 +1,1 @@
+    "A Child, A ખેડૂત, A Police man, A Lawyer, A Prime Minister, A गुरु, A Teacher, A મામા, A Father, A Mother, A Fighter, A Bard, A GlowPoT, A Coral, A Sister, શક્તિ, शिव, विष्णु, मुहम्मद, बुद्ध, محمد , प्रवृत्ति, निवृत्ति, संसार, अनुज, भ्राता, अक्का, बाबुमोशाय, ..." and all the other words just entered the Matrix.
