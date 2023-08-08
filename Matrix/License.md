@@ -2,7 +2,7 @@
 
     "What?"
 
-    "Book a call with us before you start using it."
+    "Book a call with us on Pravritti.org before you start using it."
 
     "Cool."
 

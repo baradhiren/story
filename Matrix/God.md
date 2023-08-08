@@ -1,11 +1,11 @@
-    "Hiring Gods now!"
+    "Have you confirmed all the clauses and loopholes?"
 
-    Please mention your name as comment on this line in GitHub.
+    "Did you say Loopholes?"
 
-    *-------- This is an ad sponsored by Pravritti.
+    "Yes. But I said clauses as well."
 
-    *-------- Ad. 2 This is just an ad to not let you reach where you want.
+    "But why am I agreeing to loopholes?"
 
-    *-------- Now, I am just messing with you. But still Ad. 3.
+    "Rest assured. I will take care of that."
 
 -- The End.
