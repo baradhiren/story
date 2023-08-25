@@ -1,7 +1,7 @@
 The Matrix (A Story.)
 
 
-Matrix is a sci-fi comic.
+Matrix is a Mirror.
 
 
 Sponsored by:
