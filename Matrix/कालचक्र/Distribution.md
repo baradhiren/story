@@ -1,1 +1,0 @@
-    "I will come back to this later." noted Hiren while keeping the story unwritten.
